@@ -4,7 +4,7 @@
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/78t87KZ.png" width="640">
+    <img src="https://i.imgur.com/78t87KZ.png" width="640">
   </a>
 </p>
 
@@ -41,7 +41,7 @@ Whispeara is a natural choice for better hearing, unlike harsh medicines. People
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/rGPJ6UX.png" width="370">
+    <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
   </a>
 </p>
 
@@ -73,7 +73,7 @@ Based on its ingredients and claimed benefits, **Whispear is best suited for:**
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/hrYNNxe.png" width="640">
+    <img src="https://i.imgur.com/hrYNNxe.png" width="640">
   </a>
 </p>
 
@@ -125,7 +125,7 @@ A closer look at Whispear’s ingredient list helps determine whether it lives u
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/6TwsQCu.jpg" width="640">
+    <img src="https://i.imgur.com/6TwsQCu.jpg" width="640">
   </a>
 </p>
 
@@ -161,7 +161,7 @@ Over 24,000 users have given Whispeara positive feedback. They see quick and slo
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/psj4Wlz.jpg" width="640">
+    <img src="https://i.imgur.com/psj4Wlz.jpg" width="640">
   </a>
 </p>
 
@@ -188,7 +188,7 @@ Tracking my progress showed me how Whispeara helped my hearing and brain. I coul
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/rGPJ6UX.png" width="370">
+    <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
   </a>
 </p>
 
@@ -246,7 +246,7 @@ While **individual results may vary**, the **majority of user feedback is positi
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/Uirhcld.png" width="640">
+    <img src="https://i.imgur.com/Uirhcld.png" width="640">
   </a>
 </p>
 
@@ -276,7 +276,7 @@ Whispeara also has limited time deals that can give you even more savings. If yo
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/rGPJ6UX.png" width="370">
+    <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
   </a>
 </p>
 
@@ -308,7 +308,7 @@ It's worth trying Whispeara, especially for people in their 30s to 70s. It could
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/Dn3hAZ8.png" width="640">
+    <img src="https://i.imgur.com/Dn3hAZ8.png" width="640">
   </a>
 </p>
 
@@ -360,7 +360,7 @@ Visit the **official Whispear website** and take advantage of the **90-day risk-
 
 <p align="center">
   <a href=" https://704f17jg20qz6lbui7vmp1u1dy.hop.clickbank.net">
-    <img src=" https://i.imgur.com/rGPJ6UX.png" width="370">
+    <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
   </a>
 </p>
 
